@@ -1,3 +1,1 @@
-# BERIKUT LINK WEBSITE RESIKEL
-
-Link:
+# BE-Resikel
